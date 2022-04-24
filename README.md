@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ShreyasS07
-- 👀 I’m interested in Artificial Intelligence
+- 👀 AI Enthusiast
 - 🌱 I’m currently looking for Machine Learning Jobs 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ Spiritual being 
 - 📫 How to reach me Shreyas07.in@gmail.com 
 
 <!---
