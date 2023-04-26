@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ShreyasS07
+- 👋 Hi, Shreyas here
 - 👀 AI Enthusiast
 - 🌱 Currently looking fresher Machine Learning Engineer role 
 - 💞️ Spiritual being 
